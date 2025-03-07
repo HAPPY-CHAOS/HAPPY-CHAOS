@@ -1,4 +1,7 @@
 ## GREETINGS VRO 👅👅
+![IMG_7110](https://github.com/user-attachments/assets/326991a4-11ec-4d9c-a350-d99be52810d8)
+![IMG_7103](https://github.com/user-attachments/assets/8387c40f-645c-4ea5-8abf-a42897fdb980)
+
 
 <!--
 **HAPPY-CHAOS/HAPPY-CHAOS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
