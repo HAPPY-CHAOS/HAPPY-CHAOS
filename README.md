@@ -9,4 +9,4 @@
 ![IMG_6057](https://static.wikia.nocookie.net/leagueoflegends/images/f/fc/Aurelion_Sol_He_Has_Returned.png/revision/latest/scale-to-width-down/1000?cb=20170325053123)
 
 
-<b>[<3 E.V.E](https://rentry.co/yasukayn) ㅤ[rmking rntry]() ㅤ[ATA](https://pantheon.atabook.org) ㅤ[rmking straw]()</b>
+<b>[<3 E.V.E](https://rentry.co/yasukayn) ㅤ[ATA](https://pantheon.atabook.org)</b>
