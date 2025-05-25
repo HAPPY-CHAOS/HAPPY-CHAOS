@@ -8,5 +8,7 @@
 
 ![IMG_6057](https://giffiles.alphacoders.com/179/179797.gif)
 
+i just really like league and trigun . ok ? ok .
 
 <b>[<3 E.V.E](https://rentry.co/yasukayn) ㅤ[ATA](https://pantheon.atabook.org)</b>
+
