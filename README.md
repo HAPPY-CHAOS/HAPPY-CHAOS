@@ -10,5 +10,5 @@
 
 i just really like league and trigun . ok ? ok .
 
-<b>[<3 E.V.E](https://rentry.co/yasukayn) ㅤ[ATA](https://pantheon.atabook.org)</b>
+<b> [temp.RENTRY](https://rentry.co/eriks-) [<3 E.V.E](https://rentry.co/yasukayn) ㅤ[ATA](https://pantheon.atabook.org)</b>
 
